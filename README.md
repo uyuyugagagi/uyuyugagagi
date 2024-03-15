@@ -1,4 +1,4 @@
-### uyuyugagagi
+### - **Discord**: [uyuyugagagi](https://discord.com/users/uyuyugagagi)
 
 <!--
 **uyuyugagagi/uyuyugagagi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
